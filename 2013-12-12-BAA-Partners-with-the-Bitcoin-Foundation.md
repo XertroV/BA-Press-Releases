@@ -1,4 +1,4 @@
-# Bitcoin Australia Partners with the Bitcoin Foundation
+# Bitcoin Association of Australia Partners with the Bitcoin Foundation
 
 **FOR RELEASE 17:00 UTC December 12, 2013**
 
